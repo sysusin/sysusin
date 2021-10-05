@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @sysusin
+- 👋 Hi, I’m @sysusth
 - 👀 I’m interested in collecting the black history of sysu, or what you want to diss
 - 🌱 I’m currently learning how to build a website to show the black history information.
 - 💞️ I’m looking to collaborate on who want to share the bad place of sysu
